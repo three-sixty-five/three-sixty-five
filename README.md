@@ -74,6 +74,10 @@
 
   𝘮𝘶𝘴𝘪𝘤 𝘨𝘦𝘯𝘳𝘦𝘴 ; 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 , 𝘪𝘯𝘥𝘪𝘦 , 𝘢𝘭𝘵 , 𝘳𝘰𝘤𝘬 , 𝘷𝘬𝘦𝘪 , 𝘱𝘰𝘱 , 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦/𝘩𝘺𝘱𝘦𝘳𝘤𝘰𝘳𝘦 , 𝘮𝘶𝘴𝘪𝘤𝘢𝘭 , 𝘤𝘭𝘢𝘴𝘴𝘪𝘤𝘢𝘭 , 𝘷𝘵𝘶𝘣𝘦𝘳 ( 𝘴𝘱𝘦𝘤𝘪𝘢𝘭 𝘮𝘦𝘯𝘵𝘪𝘰𝘯 ; 𝘪𝘬𝘦 𝘦𝘷𝘦𝘭𝘢𝘯𝘥 ,, 𝘶𝘯𝘯ä𝘮𝘦𝘥 ) , 𝘢𝘯𝘥 𝘩𝘰𝘯𝘦𝘴𝘵𝘭𝘺 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 !
 
+  [4 more info !!](https://www.last.fm/user/starsfxrw0rth)
+
+𝘨𝘪𝘷𝘦 𝘮𝘶𝘴𝘪𝘤/𝘢𝘳𝘵𝘪𝘴𝘵 𝘴𝘶𝘨𝘨𝘦𝘴𝘵𝘪𝘰𝘯 𝘰𝘯 𝘢𝘵𝘢 𝘙𝘕𝘕𝘕𝘕𝘕
+
   ## 𝘵𝘰𝘱 5 𝘮𝘢𝘺𝘣 ( 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵 𝘶𝘱𝘥𝘢𝘵𝘦𝘴 𝘭𝘰𝘭 )
   [𝘳𝘢𝘸 𝘮𝘦𝘢𝘵 - 𝘢𝘸𝘦𝘳𝘦𝘸𝘢 // 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦](https://open.spotify.com/track/0lRXEcuI4zCZRb3kz6z1XK?si=29p92RIVRQCxP6DRp6TawA)
   
@@ -83,11 +87,10 @@
   
   [𝘣𝘦𝘢𝘶𝘵𝘺 𝘴𝘤𝘩𝘰𝘰𝘭 - 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴](https://open.spotify.com/track/7MMr2rAbKCecToZUbDAQg9?si=6OXuTWaESE-8T4lIl2-wvA)
 
+[𝘪 𝘭𝘶𝘷, - 𝘴𝘦𝘳𝘢𝘱𝘩𝘪𝘮 // 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 (?)](https://open.spotify.com/track/3AIfJyBWDVUP8k2Rh49u97?si=qYhdmWfTSEmjTOjBaQ20_w)
 
+[all faves](https://open.spotify.com/playlist/4Qj037wapc67t9lTDFGXBd?si=mEXmFNQGT4mfxe5Ioq2izQ)
 
-  [4 more info !!](https://www.last.fm/user/starsfxrw0rth)
-
-  𝘨𝘪𝘷𝘦 𝘮𝘶𝘴𝘪𝘤/𝘢𝘳𝘵𝘪𝘴𝘵 𝘴𝘶𝘨𝘨𝘦𝘴𝘵𝘪𝘰𝘯 𝘰𝘯 𝘢𝘵𝘢 𝘙𝘕𝘕𝘕𝘕𝘕
   
 </details>
 
