@@ -74,6 +74,12 @@
 
   𝘮𝘶𝘴𝘪𝘤 𝘨𝘦𝘯𝘳𝘦𝘴 ; 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 , 𝘪𝘯𝘥𝘪𝘦 , 𝘢𝘭𝘵 , 𝘳𝘰𝘤𝘬 , 𝘷𝘬𝘦𝘪 , 𝘱𝘰𝘱 , 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦/𝘩𝘺𝘱𝘦𝘳𝘤𝘰𝘳𝘦 , 𝘮𝘶𝘴𝘪𝘤𝘢𝘭 , 𝘤𝘭𝘢𝘴𝘴𝘪𝘤𝘢𝘭 , 𝘷𝘵𝘶𝘣𝘦𝘳 ( 𝘴𝘱𝘦𝘤𝘪𝘢𝘭 𝘮𝘦𝘯𝘵𝘪𝘰𝘯 ; 𝘪𝘬𝘦 𝘦𝘷𝘦𝘭𝘢𝘯𝘥 ,, 𝘶𝘯𝘯ä𝘮𝘦𝘥 ) , 𝘢𝘯𝘥 𝘩𝘰𝘯𝘦𝘴𝘵𝘭𝘺 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 !
 
+  ## 𝘵𝘰𝘱 5 𝘮𝘢𝘺𝘣 ( 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵 𝘶𝘱𝘥𝘢𝘵𝘦𝘴 𝘭𝘰𝘭 )
+  [𝘳𝘢𝘸 𝘮𝘦𝘢𝘵 - 𝘢𝘸𝘦𝘳𝘦𝘸𝘢 // 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦](https://open.spotify.com/track/0lRXEcuI4zCZRb3kz6z1XK?si=29p92RIVRQCxP6DRp6TawA)
+  [𝘵𝘰𝘹𝘪𝘤 - 𝘬𝘢𝘯𝘦𝘥𝘢7 // 𝘩𝘺𝘱𝘦𝘳𝘤𝘰𝘳𝘦 // 𝘛𝘞 ; 𝘚.𝘏 , 𝘚𝘜𝘐𝘊*𝘋𝘌 ,  𝘛𝘖𝘟𝘐𝘊 𝘙𝘚](https://open.spotify.com/track/7zQVRudd00Vl6BeXsVIy3H?si=9Af9W2s2TeyCj5mvVZMi0Q)
+  [𝘴𝘵𝘢𝘺 𝘰𝘯 𝘮𝘺 𝘮𝘪𝘯𝘥 - 𝘳𝘪𝘪𝘬𝘢𝘮𝘪 // 𝘷𝘵𝘶𝘣𝘦𝘳](https://open.spotify.com/track/66pRu0lfQrU5E5LZTzills?si=CU-19XYDRMuQwgT8CRpPhg)
+  [𝘣𝘦𝘢𝘶𝘵𝘺 𝘴𝘤𝘩𝘰𝘰𝘭 - 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴](https://open.spotify.com/track/7MMr2rAbKCecToZUbDAQg9?si=6OXuTWaESE-8T4lIl2-wvA)
+
   [4 more info !!](https://www.last.fm/user/starsfxrw0rth)
 
   𝘨𝘪𝘷𝘦 𝘮𝘶𝘴𝘪𝘤/𝘢𝘳𝘵𝘪𝘴𝘵 𝘴𝘶𝘨𝘨𝘦𝘴𝘵𝘪𝘰𝘯 𝘰𝘯 𝘢𝘵𝘢 𝘙𝘕𝘕𝘕𝘕𝘕
