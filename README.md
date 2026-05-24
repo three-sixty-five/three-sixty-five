@@ -32,9 +32,6 @@
 𝘧𝘢𝘷𝘦𝘴 ; 𝘳𝘰𝘰𝘬/𝘳𝘰𝘭𝘭𝘰 , 𝘢𝘭𝘰𝘪𝘴/𝘳𝘰𝘯𝘢𝘭𝘥/𝘫𝘰𝘬𝘦𝘳 , 𝘥𝘰𝘮𝘪/𝘳𝘰𝘭𝘢𝘯𝘥 , 𝘢𝘬𝘶𝘵𝘢𝘨𝘢𝘸𝘢/𝘷𝘦𝘳𝘭𝘢𝘪𝘯𝘦 
 
 𝘧𝘢𝘷𝘦 𝘴𝘩𝘪𝘱𝘴 ; 𝘳𝘰𝘰𝘬𝘷𝘪𝘭 , 𝘴𝘴𝘬𝘬 , 𝘷𝘢𝘯𝘰𝘦 , 𝘮𝘢𝘵𝘤𝘩𝘢𝘣𝘭𝘰𝘴𝘴𝘰𝘮/𝘫𝘰𝘦 𝘹 𝘤𝘩𝘦𝘳𝘳𝘺 , 𝘬𝘢𝘷𝘦𝘵𝘩𝘢𝘮
-
-𝘧𝘢𝘷𝘦 𝘮𝘶𝘴𝘪𝘤 𝘢𝘳𝘵𝘪𝘴𝘵𝘴 ; 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴 , 𝘬𝘢𝘯𝘦𝘵𝘰-𝘫𝘶𝘶𝘴𝘦𝘪 , 𝘩𝘰𝘭𝘺𝘸𝘢𝘵𝘳 , 𝘴𝘢𝘭𝘭𝘺 , 𝘥𝘺𝘦 , 𝘭𝘶𝘷𝘤𝘢𝘵 ( 𝘪𝘥𝘬 𝘪𝘧 𝘴𝘰𝘮𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘢𝘳𝘦 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤, 𝘭𝘮𝘬 )
-
   
 </details>
 
@@ -69,6 +66,15 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31qps5uxka6awz6aevu72l5b6esu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=000000&bar_color_cover=false">
   </a>
 </p>
+
+<details>
+  <summary>𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘶𝘴𝘪𝘤 𝘣𝘤 𝘪 𝘥𝘰𝘯𝘵 𝘨𝘰 𝘢 𝘮𝘪𝘯𝘶𝘵𝘦 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘪𝘵</summary>
+
+  𝘧𝘢𝘷𝘦 𝘮𝘶𝘴𝘪𝘤 𝘢𝘳𝘵𝘪𝘴𝘵𝘴 ; 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴 , 𝘬𝘢𝘯𝘦𝘵𝘰-𝘫𝘶𝘶𝘴𝘦𝘪 , 𝘩𝘰𝘭𝘺𝘸𝘢𝘵𝘳 , 𝘴𝘢𝘭𝘭𝘺 , 𝘥𝘺𝘦 , 𝘭𝘶𝘷𝘤𝘢𝘵 ( 𝘪𝘥𝘬 𝘪𝘧 𝘴𝘰𝘮𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘢𝘳𝘦 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤, 𝘭𝘮𝘬 )
+
+  𝘮𝘶𝘴𝘪𝘤 𝘨𝘦𝘯𝘳𝘦𝘴 ; 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 , 𝘪𝘯𝘥𝘪𝘦 , 𝘢𝘭𝘵 , 𝘳𝘰𝘤𝘬 , 𝘷𝘬𝘦𝘪 , 𝘱𝘰𝘱 , 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦/𝘩𝘺𝘱𝘦𝘳𝘤𝘰𝘳𝘦 , 𝘮𝘶𝘴𝘪𝘤𝘢𝘭 , 𝘤𝘭𝘢𝘴𝘴𝘪𝘤𝘢𝘭 , 𝘢𝘯𝘥 𝘩𝘰𝘯𝘦𝘴𝘵𝘭𝘺 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨
+  
+</details>
 
 [atabook](https://stainedbutflawless.atabook.org/)       [listening history](https://www.last.fm/user/starsfxrw0rth)
 
