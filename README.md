@@ -73,6 +73,7 @@
 <details>
   <summary>𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘶𝘴𝘪𝘤 𝘣𝘤 𝘪 𝘥𝘰𝘯𝘵 𝘨𝘰 𝘢 𝘮𝘪𝘯𝘶𝘵𝘦 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘪𝘵</summary>
 
+  
   𝘧𝘢𝘷𝘦 𝘮𝘶𝘴𝘪𝘤 𝘢𝘳𝘵𝘪𝘴𝘵𝘴 ; 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴 , 𝘬𝘢𝘯𝘦𝘵𝘰-𝘫𝘶𝘶𝘴𝘦𝘪 , 𝘩𝘰𝘭𝘺𝘸𝘢𝘵𝘳 , 𝘴𝘢𝘭𝘭𝘺 , 𝘥𝘺𝘦 , 𝘭𝘶𝘷𝘤𝘢𝘵 , 𝘭𝘰𝘷𝘦𝘫𝘰𝘺 ( 𝘪𝘥𝘬 𝘪𝘧 𝘴𝘰𝘮𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘢𝘳𝘦 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤, 𝘭𝘮𝘬 )
 
   𝘮𝘶𝘴𝘪𝘤 𝘨𝘦𝘯𝘳𝘦𝘴 ; 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 , 𝘪𝘯𝘥𝘪𝘦 , 𝘢𝘭𝘵 , 𝘳𝘰𝘤𝘬 , 𝘷𝘬𝘦𝘪 , 𝘱𝘰𝘱 , 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦/𝘩𝘺𝘱𝘦𝘳𝘤𝘰𝘳𝘦 , 𝘮𝘶𝘴𝘪𝘤𝘢𝘭 , 𝘤𝘭𝘢𝘴𝘴𝘪𝘤𝘢𝘭 , 𝘷𝘵𝘶𝘣𝘦𝘳 ( 𝘴𝘱𝘦𝘤𝘪𝘢𝘭 𝘮𝘦𝘯𝘵𝘪𝘰𝘯 ; 𝘪𝘬𝘦 𝘦𝘷𝘦𝘭𝘢𝘯𝘥 ,, 𝘶𝘯𝘯ä𝘮𝘦𝘥 ) , 𝘢𝘯𝘥 𝘩𝘰𝘯𝘦𝘴𝘵𝘭𝘺 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 !
@@ -88,7 +89,7 @@
   
   [𝘴𝘵𝘢𝘺 𝘰𝘯 𝘮𝘺 𝘮𝘪𝘯𝘥 - 𝘳𝘪𝘪𝘬𝘢𝘮𝘪 // 𝘷𝘵𝘶𝘣𝘦𝘳](https://open.spotify.com/track/66pRu0lfQrU5E5LZTzills?si=CU-19XYDRMuQwgT8CRpPhg)
   
-  [𝘣𝘦𝘢𝘶𝘵𝘺 𝘴𝘤𝘩𝘰𝘰𝘭 - 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴](https://open.spotify.com/track/7MMr2rAbKCecToZUbDAQg9?si=6OXuTWaESE-8T4lIl2-wvA)
+  [𝘣𝘦𝘢𝘶𝘵𝘺 𝘴𝘤𝘩𝘰𝘰𝘭 - 𝘥𝘦𝘧𝘵𝘰𝘯𝘦𝘴 // 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦](https://open.spotify.com/track/7MMr2rAbKCecToZUbDAQg9?si=6OXuTWaESE-8T4lIl2-wvA)
 
 [𝘪 𝘭𝘶𝘷, - 𝘴𝘦𝘳𝘢𝘱𝘩𝘪𝘮 // 𝘴𝘩𝘰𝘦𝘨𝘢𝘻𝘦 (?)](https://open.spotify.com/track/3AIfJyBWDVUP8k2Rh49u97?si=qYhdmWfTSEmjTOjBaQ20_w)
 
