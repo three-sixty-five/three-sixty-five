@@ -76,6 +76,4 @@
   
 </details>
 
-[atabook](https://stainedbutflawless.atabook.org/)       [listening history](https://www.last.fm/user/starsfxrw0rth)
-
-
+[atabook](https://stainedbutflawless.atabook.org/)       
