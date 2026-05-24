@@ -42,3 +42,11 @@
 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘺𝘰𝘶'𝘳𝘦 𝘨𝘦𝘵𝘵𝘪𝘯𝘨 𝘰𝘶𝘵 𝘰𝘧 𝘮𝘦, 𝘪'𝘮 𝘯𝘰𝘵 𝘨𝘯𝘢 𝘤𝘰𝘥𝘦 𝘢𝘯𝘺𝘵𝘪𝘮𝘦 𝘴𝘰𝘰𝘯𝘦𝘳. /𝘴𝘪𝘭𝘭𝘺
 
 𝘗.𝘚 ; 𝘵𝘰 𝘵𝘩𝘦 𝘱𝘢𝘯𝘵𝘢𝘭𝘰𝘯𝘦 𝘥𝘶𝘥𝘦 𝘸𝘩𝘰 𝘬𝘦𝘦𝘱𝘴 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸 𝘮𝘦, 𝘚𝘈𝘠 𝘚𝘜𝘔 𝘐𝘍 𝘜 𝘞𝘈𝘕𝘕𝘈 𝘉𝘌 𝘍𝘙𝘐𝘌𝘕𝘋𝘚 𝘖𝘙 𝘕𝘈𝘞𝘛 𝘐𝘔 𝘐𝘛𝘊𝘏𝘐𝘕𝘎 𝘛𝘖 𝘛𝘈𝘓𝘒 𝘛𝘖 𝘜 𝘌𝘈𝘊𝘏 𝘛𝘐𝘔𝘌 𝘜 𝘊𝘖𝘔𝘌
+
+»┼)➝
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31qps5uxka6awz6aevu72l5b6esu&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31qps5uxka6awz6aevu72l5b6esu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=a69842&bar_color_cover=false">
+  </a>
+</p>
