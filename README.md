@@ -21,7 +21,7 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
 <details>
   <summary>$${\color{#BBC4AF}𝙖𝙗𝙤𝙪𝙩 \space 𝙢𝙚 !}$$</summary>
   
-## 𝘻𝘺 ! 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 ( 𝘢𝘯𝘺 ) ,, 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 ,, 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰
+## $${\color{#3F678F} 𝘻𝘺 \space ! \space 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 \space ( \space 𝘢𝘯𝘺 \space ) \space ,, \space 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 \space ,, \space 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰}$$
 
 »┼)➝
    
