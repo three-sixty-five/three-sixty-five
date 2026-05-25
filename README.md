@@ -1,4 +1,4 @@
-![borderup](https://i.imgur.com/8GMoV6I.png)
+![borderup](https://i.imgur.com/qQ34n7A.png)
 
 $${\color{#375A8B}»┼)➝}$$
 $${\color{#BBC4AF}𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \space 𝙚𝙣𝙘 !}$$
@@ -139,7 +139,7 @@ $${\color{#375A8B}»┼)➝}$$
 
 $${\color{#375A8B}»┼)➝}$$
 
-![rookdown](https://i.imgur.com/bpOpasc.png)
+![rookdown](https://i.imgur.com/IOgCi8D.png)
 
 [𝙖𝙩𝙖](https://stainedbutflawless.atabook.org/)  
 
