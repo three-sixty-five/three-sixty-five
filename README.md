@@ -7,11 +7,11 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
 <details>
   <summary> $${\color{#BBC4AF}!!! 𝙋𝙇𝙎 \space 𝙍𝙀𝘼𝘿 \space ; \space 𝙗𝟰 \space 𝙞𝙣𝙩𝙞𝙣𝙜 \space 𝙬 \space 𝙢𝙚}$$</summary>
 
-  ## $${\color{#3F678F}𝘐𝘞𝘊}$$
+  ## $${\color{#99C1C4}𝘐𝘞𝘊}$$
 𝘕/𝘈
-## $${\color{#3F678F}𝘐𝘞𝘌𝘊}$$
+## $${\color{#99C1C4}𝘐𝘞𝘌𝘊}$$
 𝘣𝘢𝘥 𝘵𝘦𝘳𝘮𝘴 𝘸𝘪𝘵𝘩 𝘢 𝘧𝘳𝘪𝘦𝘯𝘥 , 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘳𝘦𝘭𝘪𝘨𝘰𝘶𝘴 , 𝘤𝘰𝘮𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴
-## $${\color{#3F678F}𝘋𝘕𝘐}$$
+## $${\color{#99C1C4}𝘋𝘕𝘐}$$
 𝘳𝘢𝘤𝘪𝘴𝘵 , 𝘢𝘣𝘭𝘦𝘪𝘴𝘵 , 𝘱3𝘥𝘰𝘱𝘩𝘪𝘭𝘦𝘴 , 𝘳𝘤𝘵𝘢 , 𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘪𝘤 , 𝘵𝘳𝘢𝘯𝘴𝘱𝘩𝘰𝘣𝘪𝘤 , 𝘱𝘳𝘰𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴 , 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴
 
 </details>
@@ -21,7 +21,7 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
 <details>
   <summary>$${\color{#BBC4AF}𝙖𝙗𝙤𝙪𝙩 \space 𝙢𝙚 !}$$</summary>
   
-## $${\color{#3F678F} 𝘻𝘺 \space ! \space 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 \space ( \space 𝘢𝘯𝘺 \space ) \space ,, \space 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 \space ,, \space 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰}$$
+## $${\color{#99C1C4} 𝘻𝘺 \space ! \space 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 \space ( \space 𝘢𝘯𝘺 \space ) \space ,, \space 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 \space ,, \space 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰}$$
 
 »┼)➝
    
