@@ -1,9 +1,9 @@
-![borderup](https://i.imgur.com/qQ34n7A.png)
+![borderup](https://i.imgur.com/8GMoV6I.png)
 
 $${\color{#375A8B}»┼)➝}$$
 $${\color{#BBC4AF}𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \space 𝙚𝙣𝙘 !}$$
 
-![rookup](https://i.imgur.com/0kGfZP7.png)
+![rookup](https://i.imgur.com/qQ34n7A.png)
 
 <details>
   <summary> $${\color{#BBC4AF}!!! 𝙋𝙇𝙎 \space 𝙍𝙀𝘼𝘿 \space ; \space 𝙗𝟰 \space 𝙞𝙣𝙩𝙞𝙣𝙜 \space 𝙬 \space 𝙢𝙚}$$</summary>
