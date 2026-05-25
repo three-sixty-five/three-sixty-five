@@ -68,6 +68,7 @@ $${\color{#375A8B}»┼)➝}$$
 <details> <summary> $${\color{#BBC4AF}𝙧𝙤𝙤𝙠}$$</summary>
 
 ![rook1](https://i.imgur.com/hUP86px.jpeg)
+𝘩𝘦 𝘬𝘺𝘦𝘸𝘵 𝘭𝘪𝘬𝘦 𝘯𝘣 𝘦𝘭𝘴𝘦 𝘢𝘮𝘪𝘳𝘪𝘵𝘦
 
 </details>
 
