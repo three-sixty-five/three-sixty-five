@@ -128,6 +128,8 @@ $${\color{#375A8B}»┼)➝}$$
 
 𝘨𝘪𝘷𝘦 𝘮𝘶𝘴𝘪𝘤/𝘢𝘳𝘵𝘪𝘴𝘵 𝘴𝘶𝘨𝘨𝘦𝘴𝘵𝘪𝘰𝘯 𝘰𝘯 𝘢𝘵𝘢 𝘙𝘕𝘕𝘕𝘕𝘕
 
+![kittyrun6](https://i.imgur.com/Jzftik4.gif)
+
   ## 𝘵𝘰𝘱 5 𝘮𝘢𝘺𝘣 ( 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵 𝘶𝘱𝘥𝘢𝘵𝘦𝘴 𝘭𝘰𝘭 )
   [𝘳𝘢𝘸 𝘮𝘦𝘢𝘵 - 𝘢𝘸𝘦𝘳𝘦𝘸𝘢 // 𝘴𝘱𝘦𝘦𝘥𝘤𝘰𝘳𝘦](https://open.spotify.com/track/0lRXEcuI4zCZRb3kz6z1XK?si=29p92RIVRQCxP6DRp6TawA)
   
@@ -143,7 +145,7 @@ $${\color{#375A8B}»┼)➝}$$
 
 [𝘱𝘭𝘢𝘺𝘭𝘪𝘴𝘵 𝘰𝘧 𝘧𝘢𝘷𝘦𝘴](https://open.spotify.com/playlist/4Qj037wapc67t9lTDFGXBd?si=mEXmFNQGT4mfxe5Ioq2izQ)
 
-  ![kittyrun6](https://i.imgur.com/Jzftik4.gif)
+  ![kittyrun7](https://i.imgur.com/Jzftik4.gif)
   
 </details>
 
