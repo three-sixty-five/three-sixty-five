@@ -75,7 +75,7 @@
 
 </details>
 
-                ─•──── 𖦤
+                  ─•──── 𖦤
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -83,8 +83,8 @@
   </a>
 </p>
 
-             ▶︎•၊၊||၊|။||||။၊|။•
-               ↻ ◁ || ▷ ↺
+               ▶︎•၊၊||၊|။||||။၊|။•
+                 ↻ ◁ || ▷ ↺
 
 <details>
   <summary>𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨</summary>
