@@ -19,7 +19,7 @@
 ## ╭──────────.★..─╮
 
 <details>
-  <summary>𝘢𝘣𝘰𝘶𝘵 𝘮𝘦</summary>
+  <summary>𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 !</summary>
   
 ## 𝘻𝘺 ! 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 ( 𝘢𝘯𝘺 ) ,, 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 ,, 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰
 
@@ -44,7 +44,7 @@
 </details>
 
 <details>
-  <summary>𝘯𝘰𝘵𝘦𝘴</summary>
+  <summary>𝙣𝙤𝙩𝙚𝙨</summary>
 
   »┼)➝
   
@@ -65,7 +65,7 @@
 ## ╭──────────.★..─╮
 
 <details>
-  <summary>𝘹𝘵𝘳𝘢𝘴</summary>
+  <summary>𝙭𝙩𝙧𝙖</summary>
 
 »┼)➝
 
@@ -84,7 +84,7 @@
 </p>
 
 <details>
-  <summary>𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘶𝘴𝘪𝘤 𝘣𝘤 𝘪 𝘥𝘰𝘯𝘵 𝘨𝘰 𝘢 𝘮𝘪𝘯𝘶𝘵𝘦 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘪𝘵</summary>
+  <summary>𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨</summary>
 
 »┼)➝
   
