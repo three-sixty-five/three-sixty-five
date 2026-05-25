@@ -1,11 +1,11 @@
 ![borderup](https://i.imgur.com/8GMoV6I.png)
 
-»┼)➝  𝙘*𝙝 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 𝙚𝙣𝙘 !
+$${\color{#BBC4AF}»┼)➝  𝙘*𝙝 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 𝙚𝙣𝙘 !}$$
 
 ![rookup](https://i.imgur.com/0kGfZP7.png)
 
 <details>
-  <summary> !!! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 ; 𝙗𝟰 𝙞𝙣𝙩𝙞𝙣𝙜 𝙬 𝙢𝙚</summary>
+  <summary> $${\color{#BBC4AF}!!! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 ; 𝙗𝟰 𝙞𝙣𝙩𝙞𝙣𝙜 𝙬 𝙢𝙚}$$</summary>
 
   ## 𝘐𝘞𝘊
 𝘕/𝘈
@@ -44,7 +44,7 @@
 </details>
 
 <details>
-  <summary>𝙣𝙤𝙩𝙚𝙨</summary>
+  <summary>$${\color{#BBC4AF}𝙣𝙤𝙩𝙚𝙨}$$</summary>
 
   »┼)➝
   
@@ -65,7 +65,7 @@
 ## ╭──────────.★..─╮
 
 <details>
-  <summary>𝙭𝙩𝙧𝙖</summary>
+  <summary>$${\color{#BBC4AF}𝙭𝙩𝙧𝙖}$$</summary>
 
 »┼)➝
 
@@ -87,7 +87,7 @@
                  ↻ ◁ || ▷ ↺
 
 <details>
-  <summary>𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨</summary>
+  <summary>$${\color{#BBC4AF}𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨}$$</summary>
 
 »┼)➝
   
