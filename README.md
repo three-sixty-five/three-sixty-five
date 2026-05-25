@@ -5,7 +5,7 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
 ![rookup](https://i.imgur.com/0kGfZP7.png)
 
 <details>
-  <summary> $${\color{#BBC4AF}!!! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 ; 𝙗𝟰 𝙞𝙣𝙩𝙞𝙣𝙜 𝙬 𝙢𝙚}$$</summary>
+  <summary> $${\color{#BBC4AF}!!! 𝙋𝙇𝙎 \space 𝙍𝙀𝘼𝘿 \space ; \space 𝙗𝟰;\space 𝙞𝙣𝙩𝙞𝙣𝙜 \space 𝙬 \space 𝙢𝙚}$$</summary>
 
   ## 𝘐𝘞𝘊
 𝘕/𝘈
@@ -19,7 +19,7 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
 ## ╭──────────.★..─╮
 
 <details>
-  <summary>$${\color{#BBC4AF}𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 !}$$</summary>
+  <summary>$${\color{#BBC4AF}𝙖𝙗𝙤𝙪𝙩 \space 𝙢𝙚 !}$$</summary>
   
 ## 𝘻𝘺 ! 𝘴𝘩𝘦 / 𝘵𝘩𝘦𝘮 ( 𝘢𝘯𝘺 ) ,, 𝘭𝘪𝘵𝘩𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤 ,, 𝘧𝘪𝘭𝘪𝘱𝘪𝘯𝘰
 
@@ -87,7 +87,7 @@ $${\color{#BBC4AF}»┼)➝  𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \spac
                  ↻ ◁ || ▷ ↺
 
 <details>
-  <summary>$${\color{#BBC4AF}𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨}$$</summary>
+  <summary>$${\color{#BBC4AF}𝙢𝙪𝙨𝙞𝙘 \space 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨}$$</summary>
 
 »┼)➝
   
