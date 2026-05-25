@@ -1,11 +1,11 @@
 ![borderup](https://i.imgur.com/8GMoV6I.png)
 
-»┼)➝  𝘤*𝘩 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤 ( 𝘶𝘯𝘭𝘦𝘴𝘴 𝘴𝘱𝘦𝘤𝘪𝘧𝘪𝘦𝘥 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦 )
+»┼)➝  𝙘*𝙝 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 𝙚𝙣𝙘 !
 
 ![rookup](https://i.imgur.com/0kGfZP7.png)
 
 <details>
-  <summary> 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘪𝘯𝘨 𝘸 𝘮𝘦 ; 𝘗𝘓𝘚 𝘙𝘌𝘈𝘋</summary>
+  <summary> !!! 𝙋𝙇𝙎 𝙍𝙀𝘼𝘿 ; 𝙗𝟰 𝙞𝙣𝙩𝙞𝙣𝙜 𝙬 𝙢𝙚</summary>
 
   ## 𝘐𝘞𝘊
 𝘕/𝘈
