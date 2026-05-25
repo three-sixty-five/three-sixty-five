@@ -65,6 +65,12 @@ $${\color{#375A8B}»┼)➝}$$
 
 ## ╭──────────.★..─╮
 
+<details> <summary> $${\color{#BBC4AF}𝙧𝙤𝙤𝙠}$$</summary>
+
+![rook1](https://i.imgur.com/hUP86px.jpeg)
+
+</details>
+
 <details>
   <summary>$${\color{#BBC4AF}𝙭𝙩𝙧𝙖}$$</summary>
 
