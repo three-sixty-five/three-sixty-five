@@ -75,13 +75,16 @@
 
 </details>
 
-»┼)➝
+                ─•──── 𖦤
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31qps5uxka6awz6aevu72l5b6esu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
+
+             ▶︎•၊၊||၊|။||||။၊|။•
+               ↻ ◁ || ▷ ↺
 
 <details>
   <summary>𝙢𝙪𝙨𝙞𝙘 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨</summary>
