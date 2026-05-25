@@ -16,7 +16,7 @@
 
 </details>
 
-## ╭──────────.★..─╮
+## $${\color{#BBC4AF}╭──────────.★..─╮}$$
 
 <details>
   <summary>𝙖𝙗𝙤𝙪𝙩 𝙢𝙚 !</summary>
