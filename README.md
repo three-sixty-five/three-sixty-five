@@ -68,7 +68,15 @@ $${\color{#375A8B}»┼)➝}$$
 <details> <summary> $${\color{#BBC4AF}𝙧𝙤𝙤𝙠}$$</summary>
 
 ![rook1](https://i.imgur.com/hUP86px.jpeg)
+
 𝘩𝘦 𝘬𝘺𝘦𝘸𝘵 𝘭𝘪𝘬𝘦 𝘯𝘣 𝘦𝘭𝘴𝘦 𝘢𝘮𝘪𝘳𝘪𝘵𝘦
+
+$${\color{#375A8B}»┼)➝}$$
+
+![rook2](https://i.imgur.com/6d7Uds5.jpeg)
+
+𝘭𝘰𝘰𝘬 𝘢𝘵 𝘩𝘪𝘴 𝘴𝘮𝘪𝘭𝘦 𝘮𝘢𝘯 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘩𝘦𝘴 𝘯𝘰𝘵 𝘣𝘦𝘢𝘮𝘪𝘯𝘨 𝘩𝘢𝘱𝘱𝘪𝘯𝘦𝘴𝘴
+
 
 </details>
 
