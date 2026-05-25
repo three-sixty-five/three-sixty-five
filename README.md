@@ -1,5 +1,4 @@
-![rookiekiekie](https://i.imgur.com/tVgVPfG.png)
-𝘪𝘮 𝘙𝘌𝘈𝘓𝘓𝘠 𝘝𝘌𝘙𝘠 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘵𝘩𝘪𝘴 𝘥𝘳𝘢𝘸𝘪𝘯𝘨 𝘣𝘵𝘸 ( 𝘪𝘬 𝘩𝘪𝘴 𝘧𝘢𝘤𝘦 𝘪𝘴 𝘢𝘴𝘺𝘮𝘮𝘦𝘵𝘳𝘪𝘤 𝘣𝘶𝘵 𝘠𝘖𝘜 𝘋𝘐𝘋𝘕'𝘛 𝘕𝘖𝘛𝘐𝘊𝘌 𝘉4 𝘜 𝘙𝘌𝘈𝘋 𝘛𝘚. )
+![borderup](https://i.imgur.com/8GMoV6I.png)
 
 »┼)➝  𝘤*𝘩 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤 ( 𝘶𝘯𝘭𝘦𝘴𝘴 𝘴𝘱𝘦𝘤𝘪𝘧𝘪𝘦𝘥 𝘰𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦 )
 
@@ -109,4 +108,6 @@
 
 »┼)➝
 
-[atabook](https://stainedbutflawless.atabook.org/)       
+[atabook](https://stainedbutflawless.atabook.org/)  
+
+![borderdown](https://i.imgur.com/8GMoV6I.png)
