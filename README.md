@@ -148,7 +148,7 @@ $${\color{#EBE0CA}»┼)➝}$$
 
  $${\color{#EBE0CA}𖥠}$$ [𝘱𝘭𝘢𝘺𝘭𝘪𝘴𝘵 𝘰𝘧 𝘧𝘢𝘷𝘦𝘴](https://open.spotify.com/playlist/4Qj037wapc67t9lTDFGXBd?si=mEXmFNQGT4mfxe5Ioq2izQ)
 
- ${\color{#EBE0CA}𖥠}$$ [( honorable mention )](https://youtu.be/EtVDjqJI-E0?si=uGAMnNuAr2AnPwG8)
+ $${\color{#EBE0CA}𖥠}$$ [( honorable mention )](https://youtu.be/EtVDjqJI-E0?si=uGAMnNuAr2AnPwG8)
 
   ![kittyrun7](https://i.imgur.com/Jzftik4.gif)
   
