@@ -17,8 +17,6 @@
 </details>
 
 ## ╭──────────.★..─╮
-          »┼)➝
-  ╰─..★.──────────╯
 
 <details>
   <summary>𝘢𝘣𝘰𝘶𝘵 𝘮𝘦</summary>
@@ -60,7 +58,7 @@
   
 </details>
 
-»┼)➝
+## ╰─..★.──────────╯
 
 <details>
   <summary>𝘹𝘵𝘳𝘢𝘴</summary>
