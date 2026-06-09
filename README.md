@@ -1,7 +1,7 @@
 ![borderup](https://i.imgur.com/8GMoV6I.png)
 
 $${\color{#375A8B}»┼)➝}$$
-$${\color{#BBC4AF} 𝙘*𝙝 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \space 𝙚𝙣𝙘 !}$$
+$${\color{#BBC4AF} 𝙘*𝙝 \space & \space 𝙞𝙣𝙩 \space 𝙝𝙚𝙖𝙫𝙞𝙡𝙮 \space 𝙚𝙣𝙘 !}$$
 
 ![rookup](https://i.imgur.com/qQ34n7A.png)
 
